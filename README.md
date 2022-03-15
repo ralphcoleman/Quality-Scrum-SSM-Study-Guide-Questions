@@ -1,0 +1,1 @@
+# Quality-Scrum-SSM-Study-Guide-Questions
